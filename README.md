@@ -2,7 +2,7 @@
 - 👀 I’m interested in learning new  techs in artificial intelligence and machine learning...
 - 🌱 I’m currently learning how the world is connected through internet.
 - 💞️ I’m looking to collaborate on creative endeavors(art,music...)
-- 📫 How to reach me Linkedin@Gnana Deepika Kuthani and email:deepikakuthani@gmail.com
+- 📫 How to reach me Linkedin:Gnana Deepika Kuthani and email:deepikakuthani@gmail.com
 - 😄 Pronouns: her
 - ⚡ Fun fact: The longest recorded word in the English language has 45 letters: "pneumonoultramicroscopicsilicovolcanoconiosis".
 
